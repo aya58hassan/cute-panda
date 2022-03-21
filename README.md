@@ -1,0 +1,2 @@
+# cute-panda
+cute panda From the set of playing cards in the world of Metaverse Each has its own characteristics Take it with you anywhere It is also a nice collection to keep or give as a gift in the future of the virtual world cute panda is a collection Panda NFTs living on the Ethereum blockchain. Your cute panda NFT is also your exclusive ticket for holder only benefits, our diverse and growing community, as well as future prizes and developments
